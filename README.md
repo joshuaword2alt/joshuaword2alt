@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 im on discord and youtube and soundcloud https://www.youtube.com/channel/UC5TebwdNjd_gPKr_YNKF6QQ
 
 <!--
 **joshuaword2alt/joshuaword2alt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
