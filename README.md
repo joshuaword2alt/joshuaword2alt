@@ -12,3 +12,4 @@ https://ffmpeg.org/pipermail/ffmpeg-user/2011-October/002877.html
 https://www.image-line.com/fl-studio-learning/fl-studio-online-manual/html/plugins/ZGameEditor%20Visualizer.htm
 https://avatars.githubusercontent.com/u/83602259?s=400&u=9f17ee2d5a87b43441d7563ef8765c409e3a7a28&v=4
 https://gitter.im/websocat/Lobby
+https://www.cubic.org/player/doc/
