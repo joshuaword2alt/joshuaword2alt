@@ -14,3 +14,6 @@ https://avatars.githubusercontent.com/u/83602259?s=400&u=9f17ee2d5a87b43441d7563
 https://gitter.im/websocat/Lobby
 https://www.cubic.org/player/doc/
 websdr.ewi.utwente.nl:8901
+http://www.windows93.net/
+https://www.virtualbox.org/
+https://www.vmware.com/
