@@ -17,3 +17,5 @@ websdr.ewi.utwente.nl:8901
 http://www.windows93.net/
 https://www.virtualbox.org/
 https://www.vmware.com/
+https://youtube.com/channel/UCGJzLXjV8uiEjroVFK-Kt-Q
+https://youtube.com/c/SiamAlamOfficial
