@@ -21,3 +21,4 @@ https://youtube.com/channel/UCGJzLXjV8uiEjroVFK-Kt-Q
 https://youtube.com/c/SiamAlamOfficial
 https://reaperblog.net/2020/11/ffmpeg-for-reaper-users/
 https://www.reaper.fm/
+https://download.lenovo.com/bsco/index.html
