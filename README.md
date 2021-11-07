@@ -25,3 +25,5 @@ https://download.lenovo.com/bsco/index.html
 https://www.heroku.com/java
 https://rarevision.com/vhs-camcorder-app/
 https://youtu.be/EYLtIrQRWoQ
+https://archive.org/details/win98se_201607
+https://winworldpc.com/product/windows-98/98-second-edition
