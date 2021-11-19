@@ -1,4 +1,4 @@
-### Hi there 👋 im on discord and youtube and soundcloud https://www.youtube.com/channel/UC5TebwdNjd_gPKr_YNKF6QQ
+### Hi there 👋 im on discord and youtube and soundcloud https://www.youtube.com/channel/UC5TebwdNjd_gPKr_YNKF6QQ but I'm on https://gitlab.com/joshuaword2alt and https://replit.com/@joshuaword2alt https://rainstorm2.herokuapp.com/ and https://sourceforge.net/u/joshuaword2/profile and https://spacehey.com/profile?id=811219 
 
 <!--
 **joshuaword2alt/joshuaword2alt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -27,3 +27,15 @@ https://rarevision.com/vhs-camcorder-app/
 https://youtu.be/EYLtIrQRWoQ
 https://archive.org/details/win98se_201607
 https://winworldpc.com/product/windows-98/98-second-edition
+
+https://customerconnect.vmware.com/manage-user-profile/personal
+
+https://www.virtualbox.org/prefs
+
+
+
+
+
+
+
+
