@@ -1,5 +1,8 @@
 ### h im on discord and youtube and soundcloud https://www.youtube.com/channel/UC5TebwdNjd_gPKr_YNKF6QQ but I'm on https://gitlab.com/joshuaword2alt and https://replit.com/@joshuaword2alt https://rainstorm2.herokuapp.com/ and https://sourceforge.net/u/joshuaword2/profile and https://spacehey.com/rain2
 old https://web.archive.org/web/20211022013707/https://github.com/joshuaword2alt https://archive.org/details/@rain_storm_2 also i made music as mashup https://soundcloud.com/joshua-word-846370785 or weird stuff other ones https://replicate.com/joshuaword2alt npm https://www.npmjs.com/~rain_storm_2
+
+
+<a href="http://english-1639419636.spampoison.com"><img src= "http://pics8.inxhost.com/images/sticker.gif" border="0" width="80" height="15"/></a>
 <!--
 **joshuaword2alt/joshuaword2alt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -35,7 +38,7 @@ https://www.virtualbox.org/prefs
 tags : A S H E S T I C retro vaporwave 80's lo-fi clouds vhs 98
 spacehey tags
 
-<a href="http://english-1639419636.spampoison.com"><img src= "http://pics8.inxhost.com/images/sticker.gif" border="0" width="80" height="15"/></a>
+
 
 
 
