@@ -1,6 +1,7 @@
 ### h im on discord and youtube and soundcloud https://www.youtube.com/channel/UC5TebwdNjd_gPKr_YNKF6QQ but I'm on https://gitlab.com/joshuaword2alt and https://replit.com/@joshuaword2alt https://rainstorm2.herokuapp.com/ and https://sourceforge.net/u/joshuaword2/profile and https://spacehey.com/rain2
 old https://web.archive.org/web/20211022013707/https://github.com/joshuaword2alt https://archive.org/details/@rain_storm_2 also i made music as mashup https://soundcloud.com/joshua-word-846370785 or weird stuff other ones https://replicate.com/joshuaword2alt npm https://www.npmjs.com/~rain_storm_2
 https://www.reddit.com/user/joshua_word https://stackoverflow.com/users/16816741/joshua-word-2?tab=summary https://osu.ppy.sh/users/13941273
+https://rain-storm-2.itch.io/
 
 [![comunity](https://img.shields.io/badge/chat%20on-discord-7289DA?logo=discord&logoColor=white)](https://discord.gg/7dFhwXZAfB)
 
