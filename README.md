@@ -2,7 +2,8 @@
 old https://web.archive.org/web/20211022013707/https://github.com/joshuaword2alt https://archive.org/details/@rain_storm_2 also i made music as mashup https://soundcloud.com/joshua-word-846370785 or weird stuff other ones https://replicate.com/joshuaword2alt npm https://www.npmjs.com/~rain_storm_2
 https://www.reddit.com/user/joshua_word https://stackoverflow.com/users/16816741/joshua-word-2?tab=summary https://osu.ppy.sh/users/13941273
 
-(https://img.shields.io/badge/chat%20on-discord-7289DA?logo=discord&logoColor=white)](https://discord.gg/7dFhwXZAfB)
+[![comunity](https://img.shields.io/badge/chat%20on-discord-7289DA?logo=discord&logoColor=white)](https://discord.gg/7dFhwXZAfB)
+
 
 <a href="https://spacehey.com/rain2"><img src= "http://www.redkid.net/generator/button/rss_button.php?MAKE_GRAPHIC=true&LS_FONT_TEXT=myspace&LS_FONTCOLOR=3B3940&LS_BACKGROUND=696EFE&RS_FONT_TEXT=space&RS_FONTCOLOR=80FFFF&RS_BACKGROUND=1A1859&VBAR=30" border="0" width="80" height="15"/></a>
 <!--
