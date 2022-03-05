@@ -2,8 +2,6 @@
 old https://web.archive.org/web/20211022013707/https://github.com/joshuaword2alt https://archive.org/details/@rain_storm_2 also i made music as mashup https://soundcloud.com/joshua-word-846370785 or weird stuff other ones https://replicate.com/joshuaword2alt npm https://www.npmjs.com/~rain_storm_2
 https://www.reddit.com/user/joshua_word https://stackoverflow.com/users/16816741/joshua-word-2?tab=summary https://osu.ppy.sh/users/13941273
 
-https://streamkit.discord.com/overlay/status/697185304699994132?icon=true&online=true&logo=white&text_color=%23ffffff&text_size=14&text_outline_color=%23000000&text_outline_size=0&text_shadow_color=%23000000&text_shadow_size=0&bg_color=%231e2124&bg_opacity=0.95&bg_shadow_color=%23000000&bg_shadow_size=0&invite_code=2EFFRJ9HFp&limit_speaking=false&small_avatars=false&hide_names=false&fade_chat=0
-
 <a href="https://spacehey.com/rain2"><img src= "http://www.redkid.net/generator/button/rss_button.php?MAKE_GRAPHIC=true&LS_FONT_TEXT=myspace&LS_FONTCOLOR=3B3940&LS_BACKGROUND=696EFE&RS_FONT_TEXT=space&RS_FONTCOLOR=80FFFF&RS_BACKGROUND=1A1859&VBAR=30" border="0" width="80" height="15"/></a>
 <!--
 **joshuaword2alt/joshuaword2alt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
