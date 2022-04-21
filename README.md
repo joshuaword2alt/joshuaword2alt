@@ -5,6 +5,7 @@ https://rain-storm-2.itch.io/
 
 [![comunity](https://img.shields.io/badge/chat%20on-discord-7289DA?logo=discord&logoColor=white)](https://discord.gg/7dFhwXZAfB)
 
+[![comunity](https://img.shields.io/badge/telegram-join-blue)](https://t.me/joshua_word_2)
 
 <a href="https://spacehey.com/rain2"><img src= "http://www.redkid.net/generator/button/rss_button.php?MAKE_GRAPHIC=true&LS_FONT_TEXT=myspace&LS_FONTCOLOR=3B3940&LS_BACKGROUND=696EFE&RS_FONT_TEXT=space&RS_FONTCOLOR=80FFFF&RS_BACKGROUND=1A1859&VBAR=30" border="0" width="80" height="15"/></a>
 <!--
